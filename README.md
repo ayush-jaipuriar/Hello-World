@@ -8,3 +8,6 @@ I am just a budding programmer who is interested in learning all things new in c
 This is the beginning of a long long journey, so I hope its an auspicious moment!
 
 Have a great day.
+
+2024 is here.
+Lets have the greatest most memorable year possible.
